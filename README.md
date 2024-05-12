@@ -1,0 +1,3 @@
+# NOTNOT2.0
+
+![IMG_20240513_042635](https://github.com/Alfa12345677/NOTNOT2.0/assets/99698898/4472cbbc-44da-43c9-983f-00d83f561dec)
